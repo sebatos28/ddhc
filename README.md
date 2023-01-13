@@ -41,9 +41,6 @@ En conséquence, l'Assemblée Nationale reconnaît et déclare, en présence et 
 
 **Art. 18.** Tous les Citoyens ont le droit d'accéder à la Nature et doivent respecter son intégrité.
 
-Ceci n'est pas un pied de page
-
-Ceci n'est toujours pas un pied de page!
 
 Ceci est le prochain test de pied de page.
 
